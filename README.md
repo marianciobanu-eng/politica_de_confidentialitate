@@ -1,0 +1,2 @@
+# politica_de_confidentialitate
+Politica pentru BalyEnergies
